@@ -5,4 +5,4 @@
 - 🍲 Favorite food: Tinga.
 - 📫 How to reach me: ...
 - 😎 Pronouns: Many, but my favorite is "Patrón".
-- ⚡ Fun fact: I overcame gambling addiction.
+- ⚡ Fun fact: sinner is better that alcaraz
